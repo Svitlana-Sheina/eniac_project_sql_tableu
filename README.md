@@ -64,4 +64,4 @@ Refer to the PowerPoint for the final business recommendations
 Country-by-country comparison for Eniac’s expansion strategy
 
 
-📩 Contact: Svitlana Sheina (https://www.linkedin.com/feed/)
+📩 Contact: Svitlana Sheina ([https://www.linkedin.com/feed/](https://www.linkedin.com/in/svitlana-sheina-30241514a/))
